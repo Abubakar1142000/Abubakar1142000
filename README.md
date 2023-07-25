@@ -18,7 +18,7 @@ I'm always open to exciting opportunities to collaborate on interesting mobile a
 
 - GitHub: [@Abubakar1142000](https://github.com/Abubakar1142000)
 - Email: [abubakarkhalid1142000@gmail.com](mailto:abubakarkhalid1142000@gmail.com)
-- LinkedIn: [Your LinkedIn Profile](https:///www.linkedin.com/in/abubakar1142000/)
+- LinkedIn: [@abubakar1142000](https:///www.linkedin.com/in/abubakar1142000/)
 
 Feel free to connect with me on any of the above platforms. Whether you have questions, suggestions, or just want to say hello, I'd be glad to hear from you!
 
